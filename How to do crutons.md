@@ -1,0 +1,5 @@
+1- Dice your bread:     Choose whatever size of cubes you prefer, either cut with a knife or torn into small chunks by hand.  It’s just important that the croutons be uniformly sized so that they cook evenly.
+2- Toss with oil and seasonings:    In a large bowl, drizzle the bread evenly with the oil and seasonings.  Then toss until evenly combined.
+3- Spread out on a baking sheet:    Turn the croutons out onto a parchment-covered baking sheet, and spread out in a single layer.
+4- Bake until crispy:   Flipping the croutons once halfway through baking.  Then baking until they croutons reach your desired level of crispiness.  (If they start to get too brown, lower the heat and let them bake lower and slower.)
+5- Serve or store:  Then serve immediately.  Or let the croutons cool until they reach room temperature, then store in a sealed container for up to 2 weeks.

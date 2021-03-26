@@ -1,0 +1,4 @@
+1-  Make a brine with 1 part salt and 8 parts water, or 2 tablespoons of salt to each cup of water.  Soak the tiny cucumbers for a few hours or overnight.
+2-  Drain the baby cucumbers and pack them into canning jars with spices.  I've used 5 peppercorns and 2 allspice berries to each quarter pint canning jar.
+3-  Make a brine with 1 tbsp of canning salt to every cup of vinegar and bring to a boil.  Each quarter pint jar only needs a few tablespoons of brine, but extra brine can be saved for the next batch.
+4-  Pour the brine over the pickles, leaving 1/2 inch headspace.  Seal with 2 part canning lids and store in the refrigerator or process in a water bath canner for 10 minutes.
